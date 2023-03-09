@@ -1,6 +1,6 @@
 # Ельшин Александр
 
-![Фото](https://rozmuar.ru/wp-content/uploads/2019/05/elsh_0_0-1-350x410.jpg) Фото
+![Фото](https://rozmuar.ru/wp-content/uploads/2019/05/elsh_0_0-1-350x410.jpg)
 
 
 1. Ученик Нетологии
